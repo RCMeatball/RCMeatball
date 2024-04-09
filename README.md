@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @RCMeatball
-- 👀 I’m interested in video games, drumming, nature, scuba diving, playing with my puppy  
+- 👋 Hi, I’m @RCMeatball aka Rylan aka Meatball aka Silent G
+- 👀 I’m interested in video games, drumming, nature, scuba diving, playing with my puppy, drinking good beer on hot days, and traveling  
 - 🌱 I’m currently learning every day, whether I want to or not
 - 💞️ I’m looking to collaborate on everything, working alone is big lame
 - 📫 How to reach me: text or email, don't call  
